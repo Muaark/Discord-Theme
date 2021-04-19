@@ -1,5 +1,3 @@
-# Discord-Theme
-Theme NotAnotherBestTheme
-Open the file 
-Click on Discord-Theme
-Put the NotAnotherBestTheme to folder with themes
+If you want help how download and select join discord 
+https://discord.gg/RZ3hVyxJPH
+Send message for help @Muaark#1912
