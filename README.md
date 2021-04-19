@@ -1,0 +1,2 @@
+# Discord-Theme
+Theme NotAnotherBestTheme
